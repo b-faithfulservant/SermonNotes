@@ -18,7 +18,7 @@ I appointed you a prophet to the nations.”
 
 * God's calling is rooted in His foreknowledge and design, not our performance
 * Nineveh was called "the Great City".  As a city, it could be considered a metropolitan area due to its vast size and the extent of its administrative control. The city's administrative district, sometimes referred to as "Greater Nineveh," included not just the city center but also neighboring towns and outlying settlements, forming a metropolitan complex larger than the city proper. This suggests that Nineveh served as a central hub for trade, administration, and governance, making it a significant urban center in ancient Mesopotamia.
-* ![[Pasted image 20260301010117.png]]
+* ![[Nineveh.png]]
 
 
 B. Jonah had the prophetic gifting to carry it out:  God gives gifts, capacities, and assignments that align with His purpose.
