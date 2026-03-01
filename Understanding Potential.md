@@ -44,3 +44,20 @@ Ephesians 2:10
 10 For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them.
 
 * God prepares the works but we must walk in them
+
+
+D. God will go to extreme measures to bring us into alignment
+
+Jonah 1:7-10
+
+7 When my life was fainting away,  
+I remembered the LORD,  
+and my prayer came to you,  
+into your holy temple.  
+8 Those who pay regard to vain idols  
+forsake their hope of steadfast love.  
+9 But I with the voice of thanksgiving  
+will sacrifice to you;  
+what I have vowed I will pay.  
+Salvation belongs to the LORD!”  
+10 And the LORD spoke to the fish, and it vomited Jonah out upon the dry land. 
